@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ... Facebook https://www.facebook.com/david.jung.712/
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I'm Korean
--->
+- ⚡ Fun fact: ... 
+--> I'm Korean
