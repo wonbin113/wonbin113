@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...  Uni
 - 🤔 I’m looking for help with ... Job Seeking
 - 💬 Ask me about ... Anything
-- 📫 How to reach me: ... Facebook https://www.facebook.com/david.jung.712/
+- 📫 How to reach me: ... Facebook https://www.facebook.com/profile.php?id=100074330944362
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... 
 --> I'm Korean
